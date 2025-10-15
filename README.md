@@ -1,1 +1,0 @@
-# PracticaGuiada6
